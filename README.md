@@ -1,0 +1,19 @@
+- 👋 Hi, I’m @kayaismail1905
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+- ı love football
+- why do we live in this world?
+- is there any god?
+- think of a god, very strong and unseen.
+- is this possible?
+- I think everythings empty, there isn't a god but this world great
+- I don't beleave the BİNG BANG. because the big bang a big lie
+- 
+<!---
+kayaismail1905/kayaismail1905 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
